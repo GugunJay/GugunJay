@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GugunJay
-- 👀 I’m interested in AMY Project
-- 🌱 I’m currently learning AMY translating
-- 💞️ I’m looking to collaborate on MengYan
+- 👀 I’m interested
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate
 - 😄 Pronouns: ...
 - ⚡ Fun fact: jilat ketek nahida
 
